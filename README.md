@@ -12,10 +12,21 @@
 
 
 
-IMAGE
+
+
+![tumblr_95fdf0b1c0d068be2f72d1084473ea03_2b868cb2_250](https://github.com/user-attachments/assets/d2985c8d-fd97-467e-b1e8-9839c6439fe2)
+
+
+
+
+
+
 
 
 $\Large\color{#632230}{\textsf{"-Text"}}$
+
+
+
 
 $\small\color{#6b73db}{\textsf{HELLOOO!!!}}$
 
@@ -27,7 +38,17 @@ $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes 
 
 
 
-IMAGE
+
+
+
+
+
+![tumblr_a5e23ffd9bbd3a640e1127fe6c117e86_7560d7f8_400](https://github.com/user-attachments/assets/2a458951-2090-4b4d-bf31-d214f305ad9f)
+
+
+
+
+
 
 
 
@@ -57,7 +78,11 @@ $\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't t
 
 
 
-image
+
+
+![tumblr_b75cd5ebc749fee0f75fb46c88d10b3b_471214d1_400](https://github.com/user-attachments/assets/70a23203-3635-4b5f-85e6-3fb42de3cb8d)
+
+
 
 
 
@@ -94,8 +119,11 @@ $\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am aro
 
 
 
+![tenor](https://github.com/user-attachments/assets/deff7970-ecb5-4157-9756-8bb9952eb4e1)
 
-image
+
+
+
 
 
 
@@ -121,7 +149,18 @@ $\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some
 $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/night.}}$
 
 
-image
+
+
+
+
+
+![tenor](https://github.com/user-attachments/assets/c3808991-4f4b-4cb8-89e7-2e21dd72a8e3)
+
+
+
+
+
+
 
 [Guns.lol](https://guns.lol/w1lz0/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://mobiusmmobius.straw.page/) 
 
