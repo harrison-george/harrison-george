@@ -60,7 +60,16 @@ $\Large\color{#59082b}{\textsf{“The saddest thing was actually getting fed up 
 
 
 
-$\Large\color{#59082b}{\textsf{“-When you get to a certain age, you want to go off and get your own girl and your own car, split up a bit.”}}$
+$\Large\color{#59082b}{\textsf{“-When you get to a certain age, you want to go off and get your own girl and your own car,-”}}$
+
+
+
+
+
+
+$\Large\color{#59082b}{\textsf{“-split up a bit.”}}$
+
+
 
 
 
