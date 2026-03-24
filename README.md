@@ -23,7 +23,7 @@
 
 
 
-$\Large\color{#59082b}{\textsf{"-Text"}}$
+$\Large\color{#59082b}{\textsf{“-If you don't know where you're going, any road'll take you there.”}}$
 
 
 
@@ -53,7 +53,14 @@ $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes 
 
 
 
-$\Large\color{#59082b}{\textsf{"text"}}$
+$\Large\color{#59082b}{\textsf{“The saddest thing was actually getting fed up with one another. It's like growing up in a family.-”}}$
+
+
+
+
+
+
+$\Large\color{#59082b}{\textsf{“-When you get to a certain age, you want to go off and get your own girl and your own car, split up a bit.”}}$
 
 
 
@@ -87,7 +94,7 @@ $\small\color{#6b73db}{\textsf{Mainly with my heavy kins, no offense I'm sorry i
 
 
 
-$\Large\color{#59082b}{\textsf{"Text"}}$
+$\Large\color{#59082b}{\textsf{“When you've seen beyond yourself, then you may find, peace of mind is waiting there.”}}$
 
 
 
@@ -129,7 +136,7 @@ $\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am aro
 
 
 
-$\Large\color{#59082b}{\textsf{"text"}}$
+$\Large\color{#59082b}{\textsf{“The only thing we really have to work at in this life is how to manifest love.”}}$
 
 
 
