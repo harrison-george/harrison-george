@@ -23,7 +23,7 @@
 
 
 
-$\Large\color{#632230}{\textsf{"-Text"}}$
+$\Large\color{#59082b}{\textsf{"-Text"}}$
 
 
 
@@ -53,7 +53,7 @@ $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes 
 
 
 
-$\Large\color{#f7cd59}{\textsf{"text"}}$
+$\Large\color{#59082b}{\textsf{"text"}}$
 
 
 
@@ -68,12 +68,11 @@ $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack 
 
 $\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
 
-$\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles or completely ignore them. 
+$\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles or completely ignore them.}}$
 
 $\small\color{#6b73db}{\textsf{Mainly with my heavy kins, no offense I'm sorry in advance if it does happen!}}$
 
 
-$\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't truly mind anyone interacting with me unless told so!}}$
 
 
 
@@ -88,7 +87,7 @@ $\small\color{#6b73db}{\textsf{Master kinnies are welcome to interact, i don't t
 
 
 
-$\Large\color{#382275}{\textsf{"Text"}}$
+$\Large\color{#59082b}{\textsf{"Text"}}$
 
 
 
@@ -130,7 +129,7 @@ $\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am aro
 
 
 
-$\Large\color{#632230}{\textsf{"text"}}$
+$\Large\color{#59082b}{\textsf{"text"}}$
 
 
 
