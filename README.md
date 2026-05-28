@@ -82,7 +82,7 @@ $\small\color{#6b73db}{\textsf{If you can't tell from my ponies, I quite enjoy b
 
 $\small\color{#6b73db}{\textsf{due to that being the case, I encourage the lack of doubles interacting with myself, unless stated wise.}}$
 
-$\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends.}}$
+$\small\color{#6b73db}{\textsf{The only exception I have for that, is being friends. sometimes...}}$
 
 $\small\color{#6b73db}{\textsf{I try not to be hostile, but at time I am with doubles or completely ignore them.}}$
 
@@ -115,16 +115,19 @@ $\Large\color{#59082b}{\textsf{“When you've seen beyond yourself, then you may
 $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
 
 
-$\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen, but that doesn't mean I will ask questions.}}$
+$\small\color{#6b73db}{\textsf{I love listening, most of the time. I'm not much of a talker ever unless were close or i enjoy you enough.}}$
+
+
+$\small\color{#6b73db}{\textsf{but I will gladly listen, but that doesn't mean I will ask questions.}}$
 
 
 $\small\color{#6b73db}{\textsf{I dont associate with most people I know on ponytown, I mind my own business and don't like drama.}}$
 
 
-$\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (specifically in dms or strwpg)!}}$
+$\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (specifically in dms or strwpg).}}$
 
 
-$\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around unless they are very close, I get really anxious about being hated on here.}}$
+$\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around, I get really anxious about being hated on here.}}$
 
 
 
