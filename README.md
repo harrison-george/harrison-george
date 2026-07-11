@@ -32,6 +32,12 @@ $\small\color{#6b73db}{\textsf{HELLOOO!!!}}$
 
 $\small\color{#6b73db}{\textsf{my name is will, or the doctor, mainly varying with what kin of my own I am presenting myself with.}}$
 
+$\small\color{#6b73db}{\textsf{will is preferred at all times when talking to me.}}$
+
+$\small\color{#6b73db}{\textsf{I still respond to kin names even when not presenting as them at the time,}}$
+
+$\small\color{#6b73db}{\textsf{but I do NOT preferred being called them when not presenting as that kin.}}$
+
 $\small\color{#6b73db}{\textsf{My pronouns consistantly stay masculine, any feminine terms will be called out, and I will state that I am uncomfortable.}}$
 
 $\small\color{#decda0}{\textsf{My birthday is January 26th, any birthday wishes are appreciated even if I dont celebrate it! :p}}$
