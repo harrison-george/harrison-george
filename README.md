@@ -121,19 +121,16 @@ $\Large\color{#59082b}{\textsf{“When you've seen beyond yourself, then you may
 $\small\color{#6b73db}{\textsf{c+h is always welcome, specially when I am alone unless stated otherwise.}}$
 
 
-$\small\color{#6b73db}{\textsf{I love listening, most of the time. I'm not much of a talker ever unless were close or i enjoy you enough.}}$
-
-
-$\small\color{#6b73db}{\textsf{but I will gladly listen, but that doesn't mean I will ask questions.}}$
+$\small\color{#6b73db}{\textsf{I love listening, I'm not much of a talker when it comes down to not knowing people but I will gladly listen.}}$
 
 
 $\small\color{#6b73db}{\textsf{I dont associate with most people I know on ponytown, I mind my own business and don't like drama.}}$
 
 
-$\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (specifically in dms or strwpg).}}$
+$\small\color{#6b73db}{\textsf{If you see me sitting or hiding behind anyone associated with drama, PLEASE let me know (wether dms or strwpg)!}}$
 
 
-$\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around, I get really anxious about being hated on here.}}$
+$\small\color{#6b73db}{\textsf{I do not wish to be hated for the people I am around unless they are very close, I get really anxious about being hated on here.}}$
 
 
 
@@ -160,7 +157,8 @@ $\Large\color{#59082b}{\textsf{“The only thing we really have to work at in th
 
 
 
-$\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I start to distance myself off, but I also do have severe anger issues!}}$
+
+$\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I distance myself off, I also do also have severe anger issues at times but i can manage them.}}$
 
 $\small\color{#6b73db}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy,}}$
 
@@ -168,7 +166,7 @@ $\small\color{#6b73db}{\textsf{specially if I get close to someone.}}$
 
 $\small\color{#6b73db}{\textsf{I am NOT diagnosed, I do NOT care if you believe if I have autism, or adhd, I will find out on my own and do not wish for your input on that topic, thank you.}}$
 
-$\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some time learning about me, boundries, dni, iwc, and byi are linked within my-}}$
+$\small\color{#6b73db}{\textsf{Thank you for taking your time, and spending some time learning about me, boundries, dni, and byi, interests and kins are linked within my-}}$
 
 $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/night.}}$
 
@@ -186,7 +184,7 @@ $\small\color{#6b73db}{\textsf{-pronouns.cc and strawpage, have a wonderful day/
 
 
 
-[Guns.lol](https://guns.lol/w1lz0/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://mobiusmmobius.straw.page/) 
+[Guns.lol](https://guns.lol/fourthdoctor/)          ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ              [strawpage](https://fourthdoctor.straw.page/) 
 
 
 
