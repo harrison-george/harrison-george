@@ -158,7 +158,7 @@ $\Large\color{#59082b}{\textsf{“The only thing we really have to work at in th
 
 
 
-$\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I distance myself off, I also do also have severe anger issues at times but i can manage them.}}$
+$\small\color{#6b73db}{\textsf{I do tend to have mood swings, but not too often, they tend to be depressive and I distance myself off, I also do have severe anger issues at times but i can manage them at times.}}$
 
 $\small\color{#6b73db}{\textsf{I also have slight adandonment issues, and I am absolutely petrified to scare people off, or have them leave me, so I tend to be very clingy,}}$
 
